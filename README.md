@@ -1,0 +1,1 @@
+# avito_text_rotatiobn_2026
